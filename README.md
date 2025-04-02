@@ -1,1 +1,1 @@
-# prod-freelancers-gigzs
+# gigzs-comingsoon
